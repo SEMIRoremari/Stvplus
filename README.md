@@ -1,2 +1,0 @@
-# Stvplus
-Kurdish
